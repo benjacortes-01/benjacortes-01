@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @benjacortes
+- 👀 I’m interested in **Data Science**, and my other passion is Nutrition
+- 🌱 I’m currently learning for a better wolrd
+- 💞️ I’m looking to collaborate with the world to create the **future**
+- 📫 How to reach me *>>* **@_benjacortes** on Instagram
